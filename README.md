@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alphan1ner
+- 👀 I’m interested in hackintoshing, homelab, filmmaking and photography.
+- 🌱 I’m currently learning how to make music and films, and developing my tinkering skills.
+- 💞️ I’m looking to collaborate on whatever! As long as it's cool :) 
+- 📫 How to reach me: alphan1ner#6879 on discord.
